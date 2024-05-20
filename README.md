@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ZestYeah
+- 👀 I’m interested in Creating Creativity
+- 🌱 I’m currently learning lot's of new stuff
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me lol don't
+- 😄 Pronouns: he he
+- ⚡ Fun fact: your life may be ✨ special ✨ when you're the joke lol
